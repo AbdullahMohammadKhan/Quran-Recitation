@@ -23,5 +23,12 @@
 20.Kurdi: https://youtu.be/kR-wzjW-0gI    
 21.Qari Abdul Basit: https://youtu.be/jc1kUQjGec0   
 22.Ustadz Qadir: https://youtu.be/eLX32c_zen8   
-23.
+23.Mohammad Al Luhaidan: https://youtu.be/bkIrkuWfYH4   
+24.   
+
+
+
+### Surah Al-An'am    
+1. Luhaidan:https://youtu.be/JkVCKkmF4bU    
+2.
 
