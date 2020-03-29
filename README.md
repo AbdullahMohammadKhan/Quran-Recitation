@@ -27,7 +27,18 @@
 24.do :https://youtu.be/s9JsBDl_ye0   
 25.do:  https://youtu.be/_CTQUCjApXs   
 26. do : https://youtu.be/SF7VczusQtc   
-27.
+27.Sheikh Moutasem Al-Hameedy: https://youtu.be/YIBngBenjTY   
+28.Tariq Mohammad : https://youtu.be/WqGLzGRpPWU    
+29.Muhammad al Muqit: https://youtu.be/9Wr5rqYv6tA    
+30.Hanan Attaki : https://youtu.be/B-eO9cEyct8    
+31.Omar Hisham Al Arabi : https://youtu.be/eW6QMEH-Qaw    
+32. SAAD AL QURESHI: https://youtu.be/A833alK1fQo   
+33.Ubayd Rabbani: https://youtu.be/ezHZr6C3SEI    
+34.Abu Usamah Merdu: https://youtu.be/rP0B2d7-lR8   
+35.Sheikh Hani Ar Rifa: https://youtu.be/7d8F_-vnmWw    
+36.Fahad Aziz Niaz: https://youtu.be/TSHNC-lspY4    
+37.Qari Ziyaad Patel ঃ https://youtu.be/oTXnFJtqQ8Q   
+38.
 
 Luhaidan Full Playlist: https://www.youtube.com/results?search_query=surah+mulk+luhaidan
 
