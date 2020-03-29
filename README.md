@@ -37,3 +37,5 @@ Luhaidan Full Playlist: https://www.youtube.com/results?search_query=surah+mulk+
 1. Luhaidan:https://youtu.be/JkVCKkmF4bU    
 2.
 
+### Surah Al-Mu'min   
+1. luhaidan copy by a boy : https://youtu.be/IT0MY00XIZk
