@@ -24,7 +24,12 @@
 21.Qari Abdul Basit: https://youtu.be/jc1kUQjGec0   
 22.Ustadz Qadir: https://youtu.be/eLX32c_zen8   
 23.Mohammad Al Luhaidan: https://youtu.be/bkIrkuWfYH4   
-24.   
+24.do :https://youtu.be/s9JsBDl_ye0   
+25.do:  https://youtu.be/_CTQUCjApXs   
+26. do : https://youtu.be/SF7VczusQtc   
+27.
+
+Luhaidan Full Playlist: https://www.youtube.com/results?search_query=surah+mulk+luhaidan
 
 
 
