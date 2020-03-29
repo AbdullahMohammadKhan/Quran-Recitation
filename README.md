@@ -20,7 +20,7 @@
 17.Faisal Latif: https://youtu.be/QPk5OLmG80o   
 18.Hazza al Balushi:https://youtu.be/w0k1CV6TBHI    
 19.Raad Mohammad Al Kurdi: https://youtu.be/sB3RgpxitK8   
-20.Kurdi: https://youtu.be/kR-wzjW-0gI
+20.Kurdi: https://youtu.be/kR-wzjW-0gI    
 21.Qari Abdul Basit: https://youtu.be/jc1kUQjGec0   
 22.Ustadz Qadir: https://youtu.be/eLX32c_zen8   
 23.
