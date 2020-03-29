@@ -11,5 +11,17 @@
 8.Fakhrul UNIC : https://youtu.be/vusT8rcbRK4   
 9.Omar Hisham Al Arabi: https://youtu.be/2BbeaTw-9o0    
 10.fatih seferagic: https://youtu.be/4u6kzWvKAeo        
-11.Muzammil Hasballah:  https://youtu.be/VuCVkvDuwK8
+11.Muzammil Hasballah:  https://youtu.be/VuCVkvDuwK8    
+12.https://youtu.be/BlSXxA1o1-Y   
+13.Sheikh Abdullah Humeid: https://youtu.be/ROWDBxTwNbI   
+14.Salim Al-Ruwaili: https://youtu.be/I92gX5CG1vU   
+15.QARI ISLAM SOUBHI: https://youtu.be/Hr4QyKrUS1Q    
+16.Ismail Annuri: https://youtu.be/Cq0KUw0oiOg    
+17.Faisal Latif: https://youtu.be/QPk5OLmG80o   
+18.Hazza al Balushi:https://youtu.be/w0k1CV6TBHI    
+19.Raad Mohammad Al Kurdi: https://youtu.be/sB3RgpxitK8   
+20.Kurdi: https://youtu.be/kR-wzjW-0gI
+21.Qari Abdul Basit: https://youtu.be/jc1kUQjGec0   
+22.Ustadz Qadir: https://youtu.be/eLX32c_zen8   
+23.
 
